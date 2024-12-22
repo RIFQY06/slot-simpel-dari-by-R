@@ -1,0 +1,1 @@
+# slot-simpel-dari-by-R
